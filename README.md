@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @victorartonomy.
+- 👀 I’m interested in 3D Modelling.
+- 🌱 I’m currently learning 3D Modelling.
+- 💞️ I’m looking to collaborate on Instagram.
+- 📫 To reach me DM at victorartonomy.
